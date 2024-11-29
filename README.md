@@ -1,4 +1,4 @@
-# Hi there, I'm Eugene Yeboah 👋  
+# Hello there, I'm Eugene Yeboah 👋  
 
 Welcome to my GitHub profile! I'm a creative and versatile professional passionate about leveraging photography and storytelling to make an impact.  
 
